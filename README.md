@@ -57,6 +57,10 @@ de 3800 cams girls en live et en continu du site ☝️mais sans les photos dans
 > - 🖲️ **[Premium Mod Tivimate Iptv Player](https://dlandroid.com/tivimate-iptv-player-apk)**
 > - 🖲️ **[Tivimate Iptv Player Google play store](https://play.google.com/store/apps/details?id=ar.tvplayer.tv&hl=fr&gl=US)**
 > -  ![Tivimate](https://github.com/victore447/M3uSportsFrance/assets/48101775/2ed83ae1-f593-4ed9-951a-45bb9a9ba029)
+> - 🖲️ **[Premium Mod Televizo](https://happymod.com/ottplay-iptv-725-7-mod/com.ottplay.ottplay/)**
+> - 🖲️ **[Televizo Google play store](https://play.google.com/store/apps/details?id=com.ottplay.ottplay&hl=es)**
+> - ![unnamed](https://github.com/victore447/CamGirlsLivePlaylistM3u/assets/48101775/255b84d0-9df4-46a8-a083-876e77403a59)
+
 
 > 
 ></details>
