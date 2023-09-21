@@ -50,15 +50,15 @@ de 3800 cams girls en live et en continu du site ☝️mais sans les photos dans
 ### <li>- [x] APK TIVIMATE & OTT NAVIGATOR: </li>
 ![46](https://github.com/victore447/FilmsSeriesStrmdanskodi/assets/48101775/caa9e727-800b-4827-a780-9684462ccf19)
 ><details>
->  <summary><b><u>Cliquer sur l'icone noir pour voir:</u></b></summary>
->  
-> -
-> - 🖲️ **[Ott Navigator Iptv](https://play.google.com/store/apps/details?id=studio.scillarium.ottnavigator&hl=fr&gl=US)**
+>  <summary><b><u> Click on the black icon to see (Cliquer sur l'icone noir pour voir) :</u></b></summary>
+  
+> - 🖲️ **[Premium Mod Ott Navigator Iptv](https://dlandroid.com/ott-navigator-iptv-apk)**
+> - 🖲️ **[Ott Navigator Iptv Google play Store](https://play.google.com/store/apps/details?id=studio.scillarium.ottnavigator&hl=fr&gl=US)**
 > - ![Ott Navigator](https://github.com/victore447/M3uSportsFrance/assets/48101775/86d9a2f8-6516-4f7d-a1e6-89c429e438f3)
-> - 🖲️ **[Tivimate Iptv Player](https://play.google.com/store/apps/details?id=ar.tvplayer.tv&hl=fr&gl=US)**
+> - 🖲️ **[Premium Mod Tivimate Iptv Player](https://dlandroid.com/tivimate-iptv-player-apk)**
+> - 🖲️ **[Tivimate Iptv Player Google play Store](https://play.google.com/store/apps/details?id=ar.tvplayer.tv&hl=fr&gl=US)**
 > -  ![Tivimate](https://github.com/victore447/M3uSportsFrance/assets/48101775/2ed83ae1-f593-4ed9-951a-45bb9a9ba029)
-
->  
+> -
 ></details>
 
-### <li>- [x] 👌 Mettre une star en haut si ça été intéressant✔️ </li>![smiley-etoile-image-animee-0164](https://github.com/victore447/FilmsSeriesStrmdanskodi/assets/48101775/dc73a5b7-e38e-4d80-9cbc-68ac5dd89826)
+### <li>- [x] 👌 star✔️ </li>![smiley-etoile-image-animee-0164](https://github.com/victore447/FilmsSeriesStrmdanskodi/assets/48101775/dc73a5b7-e38e-4d80-9cbc-68ac5dd89826)
