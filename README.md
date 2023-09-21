@@ -52,7 +52,7 @@ de 3800 cams girls en live et en continu du site ☝️mais sans les photos dans
 >  <summary><b><u>Click on the black icon to see (Cliquer sur l'icone noir pour voir):</u></b></summary>
 >  
 > - 🖲️ **[Premium Mod Ott Navigator Iptv](https://dlandroid.com/ott-navigator-iptv-apk)**
-> - 🖲️ **[Ott Navigator Iptv](https://play.google.com/store/apps/details?id=studio.scillarium.ottnavigator&hl=fr&gl=US)**
+> - 🖲️ **[Ott Navigator Iptv Google Play Store](https://play.google.com/store/apps/details?id=studio.scillarium.ottnavigator&hl=fr&gl=US)**
 > - ![Ott Navigator Google play store](https://github.com/victore447/M3uSportsFrance/assets/48101775/86d9a2f8-6516-4f7d-a1e6-89c429e438f3)
 > - 🖲️ **[Premium Mod Tivimate Iptv Player](https://dlandroid.com/tivimate-iptv-player-apk)**
 > - 🖲️ **[Tivimate Iptv Player Google play store](https://play.google.com/store/apps/details?id=ar.tvplayer.tv&hl=fr&gl=US)**
