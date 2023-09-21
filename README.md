@@ -16,10 +16,10 @@ adult addons which are now mostly obsolete or out of service.
 🇫🇷 Je publie cette playlist M3u d'une centaines de cams girls de chaturbate.com 
 et quelques unes de myfreecams com (ajouts en cours).
 Une photo de chaque cam girl est inserer.Et pour pas qu'il y ai du blabla sur la majorité de ces 
-dernière,J'ai mis que des plus de 30 ans.👆Cela permet de voir ces dernières sur votre 📺 sans avoir à vous
+dernières,J'ai mis que des plus de 30 ans.👆Cela permet de voir ces dernières sur votre 📺 sans avoir à vous
 rendre sur ces sites où de vous servir des addons adultes de Kodi qui sont maintenant en
 majorité obsolètes ou hors service.
-☝️J'ai alimenter ça en journée de 10h a 23h et continuerai ça quand j'en aurai le temps
+☝️J'ai alimenter ça en journée de 10h a 23h et continuerai ça quand j'en aurai le temps.
 
 ![Chaturbate](https://github.com/victore447/CamGirlsLivePlaylistM3u/assets/48101775/1c3f2217-1e1d-4175-9535-5219c6b0939d)
 
@@ -34,14 +34,14 @@ majorité obsolètes ou hors service.
 
 ### <li>- [x] (English version) </li>
 🇬🇧 ☝️ The m3u8 links all work👌& if you have a black screen it's because the cam girl is absent.
-⏱️So see her nickname in the m3u playlist to check these times of the chaturbate or myfreecams sites if you want .
+⏱️So see her nickname in the m3u playlist to check these times of the chaturbate or myfreecams sites if you want.
 Finally if you are impatient, there is this link 👉 [m3u](https://bit.ly/iptvlivecams) from 👉 [mycamtv](https://fr.mycamtv.com) with more 
 than 3800 cam girls live and continuously from the site ☝️but without the photos in channels if you want to see this on your 📺.✔️
 
 ![mycamtv](https://github.com/victore447/CamGirlsLivePlaylistM3u/assets/48101775/5d100735-9088-40a3-b5b3-c94dcd14669e)
 ### <li>- [x] (French version) </li>
 🇫🇷 ☝️Les liens m3u8 fonctionnent tous👌& si vous avez un écran noir c'est que la cam girl est absente.
-⏱️Donc voir son pseudo dans la playlist m3u pour vérifier ces horaires des sites chaturbate ou myfreecams si vous voulez 
+⏱️Donc voir son pseudo dans la playlist m3u pour vérifier ces horaires des sites chaturbate ou myfreecams si vous voulez. 
 Enfin si vous êtes impatients,Il y a ce lien 👉 [m3u](https://bit.ly/iptvlivecams) provenant de 👉 [mycamtv](https://fr.mycamtv.com) avec plus 
 de 3800 cams girls en live et en continu du site ☝️mais sans les photos dans les chaînes si vous voulez voir ça sur votre 📺 .✔️
 
