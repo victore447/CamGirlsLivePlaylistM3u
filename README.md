@@ -36,14 +36,14 @@ majorité obsolètes ou hors service.
 🇬🇧 ☝️ The m3u8 links all work👌& if you have a black screen it's because the cam girl is absent.
 ⏱️So see her nickname in the m3u playlist to check these times of the chaturbate or myfreecams sites if you want.
 Finally if you are impatient, there is this link 👉 [m3u](https://bit.ly/iptvlivecams) from 👉 [mycamtv](https://fr.mycamtv.com) with more 
-than 3800 cam girls live and continuously from the site ☝️but without the photos in channels if you want to see this on your 📺.✔️
+than 3800 cam girls live and continuously from the site ☝️but without the photos,ages.. in channels if you want to see this on your 📺.✔️
 
 ![mycamtv](https://github.com/victore447/CamGirlsLivePlaylistM3u/assets/48101775/5d100735-9088-40a3-b5b3-c94dcd14669e)
 ### <li>- [x] (French version) </li>
 🇫🇷 ☝️Les liens m3u8 fonctionnent tous👌& si vous avez un écran noir c'est que la cam girl est absente.
 ⏱️Donc voir son pseudo dans la playlist m3u pour vérifier ces horaires des sites chaturbate ou myfreecams si vous voulez. 
 Enfin si vous êtes impatients,Il y a ce lien 👉 [m3u](https://bit.ly/iptvlivecams) provenant de 👉 [mycamtv](https://fr.mycamtv.com) avec plus 
-de 3800 cams girls en live et en continu du site ☝️mais sans les photos dans les chaînes si vous voulez voir ça sur votre 📺 .✔️
+de 3800 cams girls en live et en continu du site ☝️mais sans les photos,ages.. dans les chaînes si vous voulez voir ça sur votre 📺 .✔️
 
 ></details>
 ### <li>- [x] APK: </li>
