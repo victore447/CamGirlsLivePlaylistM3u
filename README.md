@@ -6,15 +6,15 @@
 ![mb117](https://github.com/victore447/CamGirlsLivePlaylistM3u/assets/48101775/3818070a-ef63-4b80-b33f-8de04b6c42b4)
 
  ### <li>- [x] (English version) </li>
-🇬🇧 I'm publishing this M3u playlist of a hundred cam girls from chaturbate.com 
-and a few from myfreecams com (additions in progress).A photo of each cam girl is inserted.And so 
+🇬🇧 I publish this M3u playlist of more than 200 cam girls from chaturbate.com 
+and a few from  mycamtv.com & myfreecams.com (additions in progress).A photo of each cam girl is inserted.And so 
 that there is no blabla on the majority of the latter, I only put people over 30 years old.
 👆This allows you to see these on your 📺 without having to go to these sites or use Kodi
 adult addons which are now mostly obsolete or out of service.
 ☝️I run this during the day from 10 a.m. to 11 p.m. and will continue this when I have time.
 ### <li>- [x] (French version) </li>
-🇫🇷 Je publie cette playlist M3u d'une centaines de cams girls de chaturbate.com 
-et quelques unes de myfreecams com (ajouts en cours).
+🇫🇷 Je publie cette playlist M3u de plus de 250 cams girls de chaturbate.com 
+et quelques unes de mycamtv.com & myfreecams.com (ajouts en cours).
 Une photo de chaque cam girl est inserer.Et pour pas qu'il y ai du blabla sur la majorité de ces 
 dernières,J'ai mis que des plus de 30 ans.👆Cela permet de voir ces dernières sur votre 📺 sans avoir à vous
 rendre sur ces sites où de vous servir des addons adultes de Kodi qui sont maintenant en
